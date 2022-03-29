@@ -1,0 +1,1 @@
+# 220-1002---CompTIA-A-Certification-Exam-Core-2
